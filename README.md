@@ -213,3 +213,7 @@ GPT-4는 월 20달러를 지불하는 유료 서비스인 챗GPT플러스(ChatGP
 
 원본 기사가 궁금하시다면, [링크](https://www.seoul.co.kr/news/newsView.php?id=20230905500183)를 클릭해주세요!
 
+
+#add new comment
+박태하 교육생이 보고 갑니다. 감사합니다.
+
